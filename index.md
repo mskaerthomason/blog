@@ -1,9 +1,11 @@
-# Content coming soon!
+## Content coming soon!
 
 Thanks for visiting!
 
-You can also find me at
+You can also find me on
 
-twitter.com/thomasonmeg
-linkedin.com/in/mskaerthomason
-github.com/mskaerthomason
+- [Twitter](twitter.com/thomasonmeg)
+
+- [LinkedIn](linkedin.com/in/mskaerthomason)
+
+- [GitHub](github.com/mskaerthomason)
