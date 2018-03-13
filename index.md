@@ -1,8 +1,6 @@
 ## Content coming soon!
 
-Thanks for visiting!
-
-You can also find me on
+Thanks for visiting! You can also find me on:
 
 - [Twitter](twitter.com/thomasonmeg)
 
