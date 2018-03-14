@@ -2,8 +2,8 @@
 
 Thanks for visiting! You can also find me on:
 
-- [Twitter](twitter.com/thomasonmeg)
+- [Twitter](https://www.twitter.com/thomasonmeg)
 
-- [LinkedIn](linkedin.com/in/mskaerthomason)
+- [LinkedIn](https://www.linkedin.com/in/mskaerthomason)
 
-- [GitHub](github.com/mskaerthomason)
+- [GitHub](https://www.github.com/mskaerthomason)
